@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @fixidk
+- 👀 I’m interested in infosec stuff
